@@ -1,4 +1,4 @@
-# 
+# VIP breakout trading bot presets for Mac OS | Ultimate breakout trading bot presets for PC Windows. Featuring mean reversion strategy and futures trading — optimized for maximum performance.
 
 
 
